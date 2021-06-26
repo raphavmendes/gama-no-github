@@ -1,0 +1,1 @@
+Embora esteja aprendendo tudo do zero, o curso está muito bom.
